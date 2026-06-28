@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with adopt me secure Scripts, the #1 Script. Includes invisibility and auto-sell for unbeatable performance.
 
 
 
